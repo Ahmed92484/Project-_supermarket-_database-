@@ -1,0 +1,6 @@
+![Screenshot 2024-07-03 201500](https://github.com/Ahmed92484/Project-_supermarket-_database-/assets/112737825/e8c68336-bac8-4eab-b300-a19743ca1d37)
+![Screenshot 2024-07-03 200945](https://github.com/Ahmed92484/Project-_supermarket-_database-/assets/112737825/91c0db25-b28d-4b0f-90fd-4141749561e6)
+![Screenshot 2024-07-03 200724](https://github.com/Ahmed92484/Project-_supermarket-_database-/assets/112737825/e0bd5596-ffa1-4df2-b23f-a07ce33934b1)
+![Screenshot 2024-07-03 201712](https://github.com/Ahmed92484/Project-_supermarket-_database-/assets/112737825/d297840b-78f5-4b0b-a2e8-7da400f2cbcd)
+![Screenshot 2024-07-03 201547](https://github.com/Ahmed92484/Project-_supermarket-_database-/assets/112737825/b970b8f0-bad0-4081-8cc9-1c2716f7479e)
+![Screenshot 2024-07-03 201527](https://github.com/Ahmed92484/Project-_supermarket-_database-/assets/112737825/a855a5f2-bfdb-4ea7-8db9-ba0fb25ac176)
